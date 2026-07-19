@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Suhail Khan
-**A passionate Cloud Engineer || DevOps Engineer || Gurugram University from India**
+**A passionate Cloud Engineer || AI & ML Learner Engineer || Gurugram University from India**
 
 Email Me 👉 ✉️ **iamsuhailmew@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
